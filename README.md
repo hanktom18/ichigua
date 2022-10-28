@@ -1,4 +1,4 @@
-# 吃瓜视频 最新地址发布 
+# 吃瓜传媒 最新地址发布 
 ## 导 航 永 久 域 名   HttpS://ichigua.net
 ## ⭐️ 👉 最新地址 ：HttpS://chiguatv.site/
 ## ⭐️ 👉 备用地址 ：HttpS://www.chiguatv.vip
