@@ -1,5 +1,5 @@
 # 吃瓜视频 最新地址发布 
-## 导 航 永 久 域 名Https://ichigua.net
+## 导 航 永 久 域 名 Https://ichigua.net
 ## ⭐️ 👉 最新地址 ：HttpS://chiguatv.site/
 ## ⭐️ 👉 备用地址 ：HttpS://www.chiguatv.vip
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️  ‼️
