@@ -1,3 +1,5 @@
+# 【请注意：如果打开APP看到该页面，关闭APP重新进入即可】
+
 # 快播TV 最新地址发布 
 ## 导 航 永 久 域 名  Https://kkapp.tv
 ## ⭐️ 👉 国外下载 ：HttpS://hengnb.com/?packer
