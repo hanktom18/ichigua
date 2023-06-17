@@ -3,7 +3,7 @@
 # 快播TV 最新地址发布 
 ## 导 航 永 久 域 名  Https://kkapp.tv
 ## ⭐️ 👉 国外下载 ：HttpS://hengnb.com/?packer
-## ⭐️ 👉 国内下载一 ：httpS://dpkk.5rsoft.com/?packer
+## ⭐️ 👉 国内下载一 ：httpS://p.qingquanyishu.cn/?packer
 ## ⭐️ 👉 国内下载二 ：httpS://hp.srxjy.top/?packer
 ⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️  ‼️
